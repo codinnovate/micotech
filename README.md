@@ -1,0 +1,2 @@
+# micotech
+for a company
